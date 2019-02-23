@@ -1,3 +1,1 @@
-zmiana jeddfda
-zmiana dws
-dsdsaa
+plik po zmianie
