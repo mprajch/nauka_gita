@@ -1,2 +1,3 @@
 zmiana jeddfda
-zmiana dwa
+zmiana dws
+dsdsaa
