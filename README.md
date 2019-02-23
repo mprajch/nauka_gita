@@ -1,0 +1,2 @@
+zmiana jedesd
+zmiana dwa
