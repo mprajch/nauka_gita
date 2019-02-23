@@ -1,2 +1,2 @@
-zmiana jedesd
+zmiana jeddfda
 zmiana dwa
